@@ -12,6 +12,11 @@
 
 ![](https://i.loli.net/2019/09/28/kaAO27hRQNv8quS.jpg)
 
+
+# 爵士音乐
+
+[In A Silent Way 宁静之道-迈尔斯・戴维斯](https://pan.baidu.com/s/1lsou4E_h2lj2IVSuEeOtCQ)
+
 # 日韩音乐
 
 [LiSA BEST -Day](https://pan.baidu.com/s/1z0QBtI3CeEbcaWxQM6CvOg)
