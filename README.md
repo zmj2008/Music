@@ -14,6 +14,8 @@
 
 [川田知子 - J.S. Bach Sonata & Partita BWV 1001-1003 (11.2MHz DSD)](https://pan.baidu.com/s/1ZKNLV-3I_DjjumhkOr9B2A)
 
+[清水惠里子  -  Afterglow (Eriko Shimizu & Strings 4) [UNAMAS]](https://pan.baidu.com/s/1D17883lB-sXHwUK5oXvfCw)
+
 ![](https://i.loli.net/2019/09/28/kaAO27hRQNv8quS.jpg)
 
 
