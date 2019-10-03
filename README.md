@@ -62,23 +62,8 @@
 
 [Quiet Winter Night (11.2MHz DSD)-Best Surround Sound Album 2012](https://pan.baidu.com/s/1XnZWT2J8TUa3uuSVjFlS2g)
 
-# 欧美流行
+[Sophisticated Lady Jazz Quartet - Sophisticated Lady  Vol. II-爵士四重奏](https://pan.baidu.com/s/1vso2ZlYmBrQ-5uIjrTSVdA)
 
-[Hotel California](https://pan.baidu.com/s/1XVwVaHNTgvjq_wWy-NldnA)
-
-[Deep Sleep Music The Best of Taylor Swift](https://pan.baidu.com/s/1krKUDZlM7f-G3eOMcJfwEQ)
-
-# 港台流行
-
-[陈慧娴](https://pan.baidu.com/s/1XRJJYuXnfD-pOWmH2-hAMg)
-
-# 日韩音乐
-
-[LiSA BEST -Day](https://pan.baidu.com/s/1z0QBtI3CeEbcaWxQM6CvOg)
-
-[君のかわり／1bit／11.2mhz／DFF](https://pan.baidu.com/s/16bPtKKIo7vIDRm2lpmhSLA)
-
-![](https://i.loli.net/2019/09/28/MX458purPfNQtcv.jpg)
 
 # 小提琴
 
@@ -86,10 +71,12 @@
 
 [Northern Timbre (11.2MHz DSD)](https://pan.baidu.com/s/1eiEDtk3Io4hMxfz5rbdxlQ)
 
+[Petteri-Iivonen-and-Kevin-Fitz-Gerald Art-of-the-Sonata vol-II-小提琴的艺术](https://pan.baidu.com/s/1jzXitOkCCj4tmnYvl8tbGg)
+
+
 # 大提琴
 
 [Orientale (渡边方子) [Meister Music]](https://pan.baidu.com/s/1slsSU7Rf0D3uh2ofe-e4Hw)
-
 
 
 # 钢琴
@@ -100,9 +87,32 @@
 
 [Jun Fukamachi黎明(11.2MHz DSD)](https://pan.baidu.com/s/1_NVoigU8NZu1kr6tpoFQ4g)
 
+
+# 欧美流行
+
+[Hotel California](https://pan.baidu.com/s/1XVwVaHNTgvjq_wWy-NldnA)
+
+[Deep Sleep Music The Best of Taylor Swift](https://pan.baidu.com/s/1krKUDZlM7f-G3eOMcJfwEQ)
+
+
+# 港台流行
+
+[陈慧娴](https://pan.baidu.com/s/1XRJJYuXnfD-pOWmH2-hAMg)
+
+
+# 日韩音乐
+
+[LiSA BEST -Day](https://pan.baidu.com/s/1z0QBtI3CeEbcaWxQM6CvOg)
+
+[君のかわり／1bit／11.2mhz／DFF](https://pan.baidu.com/s/16bPtKKIo7vIDRm2lpmhSLA)
+
+![](https://i.loli.net/2019/09/28/MX458purPfNQtcv.jpg)
+
+
 # 法竹
 
 [SO-ZEN (Okuda Atsuya)](https://pan.baidu.com/s/1MZGAHECFc3U7-acGt1cy4w)
+
 
 # 早教系列
 
