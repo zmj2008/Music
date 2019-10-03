@@ -10,6 +10,10 @@
 
 [SOUVENIR 特隆赫姆室内乐团古典音乐](https://pan.baidu.com/s/1pWRzEO1e4y65K2QSenX9OA)
 
+[川田知子 - 我们怀念的布宜诺斯艾利斯](https://pan.baidu.com/s/1Q0YnDokWaJVaNWDGrHqAlA)
+
+[川田知子 - J.S. Bach Sonata & Partita BWV 1001-1003 (11.2MHz DSD)](https://pan.baidu.com/s/1ZKNLV-3I_DjjumhkOr9B2A)
+
 ![](https://i.loli.net/2019/09/28/kaAO27hRQNv8quS.jpg)
 
 
