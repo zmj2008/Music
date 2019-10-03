@@ -89,7 +89,7 @@
 
 # 法竹
 
-[SO-ZEN (Okuda Atsuya)](https://pan.baidu.com/s/1y6fwmUKiUszmai_Nmo1CQA)
+[SO-ZEN (Okuda Atsuya)](https://pan.baidu.com/s/1MZGAHECFc3U7-acGt1cy4w)
 
 # 幼儿早教
 
