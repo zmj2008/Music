@@ -30,6 +30,8 @@
 
 [The Sound of Ohga Hall [11.2MHz／1bit][DSD256]-大贺音乐厅之声](https://pan.baidu.com/s/1SAiSCFr_qzeg8TeFwcDO1Q)
 
+[The Brahms Project - The Complete Piano Quartets-勃拉姆斯计划-钢琴四重奏全集](https://pan.baidu.com/s/1Vv8WmSHMLNjdtXgFi6kV4g)
+
 ![](https://i.loli.net/2019/09/28/kaAO27hRQNv8quS.jpg)
 
 
@@ -38,6 +40,8 @@
 [In A Silent Way 宁静之道-迈尔斯・戴维斯](https://pan.baidu.com/s/1lsou4E_h2lj2IVSuEeOtCQ)
 
 [Tomonao Hara Hiroshi Ikejiri《Dear J.C.》(11.2MHz1bit DSD)](https://pan.baidu.com/s/19Ee1wPjbnZrm7sEkBWJSZA)
+
+[Quiet Winter Night (11.2MHz DSD)-Best Surround Sound Album 2012](https://pan.baidu.com/s/1XnZWT2J8TUa3uuSVjFlS2g)
 
 # 欧美流行
 
@@ -53,6 +57,8 @@
 
 [LiSA BEST -Day](https://pan.baidu.com/s/1z0QBtI3CeEbcaWxQM6CvOg)
 
+[君のかわり／1bit／11.2mhz／DFF](https://pan.baidu.com/s/16bPtKKIo7vIDRm2lpmhSLA)
+
 ![](https://i.loli.net/2019/09/28/MX458purPfNQtcv.jpg)
 
 # 小提琴
@@ -61,6 +67,12 @@
 
 [Northern Timbre (11.2MHz DSD)](https://pan.baidu.com/s/1eiEDtk3Io4hMxfz5rbdxlQ)
 
+# 大提琴
+
+[Orientale (渡边方子) [Meister Music]](https://pan.baidu.com/s/1slsSU7Rf0D3uh2ofe-e4Hw)
+
+
+
 # 钢琴
 
 [Dimensions (Yuki Arimasa) [UNAMAS]](https://pan.baidu.com/s/1uTr2abIO8ZBx-mAxAxFCpw)
@@ -68,6 +80,10 @@
 [Jan Gunnar Hoff《STORIES》(11.2MHz DSD)](https://pan.baidu.com/s/19IokOpTCjckgTLH__WKDgw)
 
 [Jun Fukamachi黎明(11.2MHz DSD)](https://pan.baidu.com/s/1_NVoigU8NZu1kr6tpoFQ4g)
+
+# 法竹
+
+[SO-ZEN (Okuda Atsuya)](https://pan.baidu.com/s/1y6fwmUKiUszmai_Nmo1CQA)
 
 # 幼儿早教
 
