@@ -38,6 +38,8 @@
 
 [Sakura Sakura (11.2MHz1bit DSD)-樱花、樱花](https://pan.baidu.com/s/1Msk-V8YXysWReDTjrR3IMg)
 
+[TrondheimSolistene.-.[Souvenir]-特隆赫姆独奏乐团 纪念品](https://pan.baidu.com/s/1fB1XXCpYKhrU_71cZhau4A)
+
 ![](https://i.loli.net/2019/09/28/kaAO27hRQNv8quS.jpg)
 
 
