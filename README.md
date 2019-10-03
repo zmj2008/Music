@@ -44,6 +44,13 @@
 
 [维瓦尔第：四季 (11.2MHz DSD)](https://pan.baidu.com/s/1OL5MhRBzqZCwOGeI7Qf00g)
 
+[Mahler - Symphony No.5 - Kubelik & Bavarian RSO [HDTT] (DSD256)-马勒第五交响曲](https://pan.baidu.com/s/1N7ziEpVDDwnwpHu97wgSMQ)
+
+[VA - Just Listen, 8 Ensembles in 1 Bit (2015) [DSD256]](https://pan.baidu.com/s/1QjKyTIhvbYVHFQteHX11JQ)
+
+[Tzigane (11.2MHz DSD)-茨冈狂想曲](https://pan.baidu.com/s/1opt4SWvi3E9B3YHmJuoe3w)
+
+
 ![](https://i.loli.net/2019/09/28/kaAO27hRQNv8quS.jpg)
 
 
