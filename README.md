@@ -91,7 +91,9 @@
 
 [SO-ZEN (Okuda Atsuya)](https://pan.baidu.com/s/1MZGAHECFc3U7-acGt1cy4w)
 
-# 幼儿早教
+# 早教系列
+
+[拿索斯My First 精选](https://pan.baidu.com/s/1gfjPmx4kaVEkOQ6TznHsUg)
 
 
 
