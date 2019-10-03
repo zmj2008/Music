@@ -40,6 +40,10 @@
 
 [TrondheimSolistene.-.[Souvenir]-特隆赫姆独奏乐团 纪念品](https://pan.baidu.com/s/1fB1XXCpYKhrU_71cZhau4A)
 
+[柴可夫斯基：佛罗伦萨的回忆，Op.70 (11.2MHz DSD)](https://pan.baidu.com/s/1VzfbJR1tCqQBLrK2MCyGqQ)
+
+[维瓦尔第：四季 (11.2MHz DSD)](https://pan.baidu.com/s/1OL5MhRBzqZCwOGeI7Qf00g)
+
 ![](https://i.loli.net/2019/09/28/kaAO27hRQNv8quS.jpg)
 
 
