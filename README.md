@@ -18,6 +18,10 @@
 
 [David and Bathsheba 特隆赫姆交响乐团](https://pan.baidu.com/s/1f7m8YD1kGieDCRRmq_DEGg)
 
+[巴赫：赋格的艺术 [UNAMAS]](https://pan.baidu.com/s/1gKYkOnMcRjnCHa_hE55-pQ)
+
+[巴赫：双小提琴协奏曲 (11.2MHz DSD)](https://pan.baidu.com/s/105qxmp1gWw0zrxXpBaWWgA)
+
 ![](https://i.loli.net/2019/09/28/kaAO27hRQNv8quS.jpg)
 
 
