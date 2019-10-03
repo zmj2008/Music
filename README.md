@@ -22,6 +22,8 @@
 
 [巴赫：双小提琴协奏曲 (11.2MHz DSD)](https://pan.baidu.com/s/105qxmp1gWw0zrxXpBaWWgA)
 
+[MAGNIFICAT (11.2MHz DSD)](https://pan.baidu.com/s/1agZVTA-6aqKDNWkhP-FWvg)
+
 ![](https://i.loli.net/2019/09/28/kaAO27hRQNv8quS.jpg)
 
 
