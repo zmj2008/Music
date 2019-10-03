@@ -16,6 +16,8 @@
 
 [清水惠里子  -  Afterglow (Eriko Shimizu & Strings 4) [UNAMAS]](https://pan.baidu.com/s/1D17883lB-sXHwUK5oXvfCw)
 
+[David and Bathsheba 特隆赫姆交响乐团](https://pan.baidu.com/s/1f7m8YD1kGieDCRRmq_DEGg)
+
 ![](https://i.loli.net/2019/09/28/kaAO27hRQNv8quS.jpg)
 
 
