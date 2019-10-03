@@ -24,6 +24,12 @@
 
 [MAGNIFICAT (11.2MHz DSD)](https://pan.baidu.com/s/1agZVTA-6aqKDNWkhP-FWvg)
 
+[Mahler - Symphony 8 - Utah Symphony, Thierry Fischer (11.2MHz DSD256)](https://pan.baidu.com/s/1pMB5xEnXG_QheUGe5cMUaQ)
+
+[维瓦尔第：Gloria 光荣颂 (新意大利合奏团) [Meister Music]](https://pan.baidu.com/s/14J8b3iFDGYh3fwv-edPEYg)
+
+[The Sound of Ohga Hall [11.2MHz／1bit][DSD256]-大贺音乐厅之声](https://pan.baidu.com/s/1SAiSCFr_qzeg8TeFwcDO1Q)
+
 ![](https://i.loli.net/2019/09/28/kaAO27hRQNv8quS.jpg)
 
 
@@ -31,9 +37,13 @@
 
 [In A Silent Way 宁静之道-迈尔斯・戴维斯](https://pan.baidu.com/s/1lsou4E_h2lj2IVSuEeOtCQ)
 
+[Tomonao Hara Hiroshi Ikejiri《Dear J.C.》(11.2MHz1bit DSD)](https://pan.baidu.com/s/19Ee1wPjbnZrm7sEkBWJSZA)
+
 # 欧美流行
 
 [Hotel California](https://pan.baidu.com/s/1XVwVaHNTgvjq_wWy-NldnA)
+
+[Deep Sleep Music The Best of Taylor Swift](https://pan.baidu.com/s/1krKUDZlM7f-G3eOMcJfwEQ)
 
 # 港台流行
 
@@ -49,9 +59,15 @@
 
 [Ayasa 岛村 绚沙](https://pan.baidu.com/s/1X4kWTyesE6XSjq9tINbEFw)
 
+[Northern Timbre (11.2MHz DSD)](https://pan.baidu.com/s/1eiEDtk3Io4hMxfz5rbdxlQ)
+
 # 钢琴
 
 [Dimensions (Yuki Arimasa) [UNAMAS]](https://pan.baidu.com/s/1uTr2abIO8ZBx-mAxAxFCpw)
+
+[Jan Gunnar Hoff《STORIES》(11.2MHz DSD)](https://pan.baidu.com/s/19IokOpTCjckgTLH__WKDgw)
+
+[Jun Fukamachi黎明(11.2MHz DSD)](https://pan.baidu.com/s/1_NVoigU8NZu1kr6tpoFQ4g)
 
 # 幼儿早教
 
